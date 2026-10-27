@@ -1,1 +1,1 @@
-# team_test
+# team_testЗміни від співавтора Stanislav
